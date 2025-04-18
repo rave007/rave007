@@ -9,8 +9,6 @@
 
 - 💬 Ask me about **InfoSec**
 
-- 📫 How to reach me: **robertveroy@gmail.com**
-
 - 📄 Know about my experiences [https://linkedin.com/in/robertveroy](https://linkedin.com/in/robertveroy)
 
 - ⚡ Fun fact **Poor Traveller, Gundam Collector, Ja Morant fan.**
